@@ -3,12 +3,12 @@
 Topic paper sharing: prosocial behavior  
 Link: https://mp.weixin.qq.com/s/GhfLLzcODCHHKHJXasHonA
 
-Topic paper sharing: prosocial behavior Ⅱ \n
+Topic paper sharing: prosocial behavior Ⅱ  
 Link: https://mp.weixin.qq.com/s/Irl0lK7NGRwyAtjjYlBPgg
 
 ## week 2 (2023.8.28-2023.9.3)
-Presentation： Thinking about God increases acceptance of artificial intelligence in decision-making \n
+Presentation： Thinking about God increases acceptance of artificial intelligence in decision-making.    
 Link: https://pubmed.ncbi.nlm.nih.gov/37549301/
 
-Presentation： Early threat perception is independent of later cognitive and behavioral control. A virtual reality-EEG-ECG study \n
+Presentation： Early threat perception is independent of later cognitive and behavioral control. A virtual reality-EEG-ECG study.    
 Link: https://pubmed.ncbi.nlm.nih.gov/37197766/
